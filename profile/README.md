@@ -9,3 +9,8 @@ Discussions at Community:
 
 Learn at Blog:
 > https://www.crf-blogger.gq
+
+Watch videos at Youtube:
+> https://www.youtube.com/c/CodingReshapeFuture
+
+> https://www.youtube.com/c/CRFCommunity
